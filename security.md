@@ -9,7 +9,7 @@ The **💀 R6 Xsonics Ultimate** is the most advanced and reliable cheat tool fo
 
 <div align="center">
 
-[![Download R6 Xsonics Ultimate](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/r6-xsonics-ultimate)
+[![Download R6 Xsonics Ultimate](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/r6-xsonics-ultimate)
 
 </div>
 
@@ -107,7 +107,7 @@ You want to compete at that level. But reaching it takes thousands of hours.
 7. **🔓 Press INSERT** — open the menu
 8. **⚙️ Enable Features** — toggle aimbot, ESP, triggerbot
 
-[![Download R6 Xsonics Ultimate](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/r6-xsonics-ultimate)
+[![Download R6 Xsonics Ultimate](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/r6-xsonics-ultimate)
 
 ### Aimbot Setup
 
@@ -219,7 +219,7 @@ Become an R6 legend. **R6 Xsonics Ultimate** gives you aimbot, ESP, triggerbot, 
 
 <div align="center">
 
-[![Download R6 Xsonics Ultimate](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/r6-xsonics-ultimate)
+[![Download R6 Xsonics Ultimate](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/r6-xsonics-ultimate)
 
 **Version 4.6.1** — Ultimate R6 hack. Free forever.
 
